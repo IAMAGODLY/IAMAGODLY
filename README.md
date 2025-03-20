@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... roblox studios
 - 💞️ I’m looking to collaborate on ... games
-- 📫 How to reach me ... Discord:Myoppie
+- 📫 How to reach me ... Discord:Holyos
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I'm not human
 
